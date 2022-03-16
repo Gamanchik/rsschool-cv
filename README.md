@@ -1,1 +1,1 @@
-# rsschool-cv
+https://gamanchik.github.io/rsschool-cv/
